@@ -1,0 +1,1 @@
+# maszbayy.github.io
